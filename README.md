@@ -44,7 +44,7 @@
 * Tianxian Rat
 * SpyRoid Rat V 7.7
 
-
+# All versions of the listed programs are cracked. Many of these versions are sold, and I make them available for free.
 
 
 # for educational use only, or on your own device. Please be aware that it is a crime to use the tools provided without prior notice.
